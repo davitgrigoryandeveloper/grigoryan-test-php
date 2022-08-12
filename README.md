@@ -1,1 +1,0 @@
-# test-davit-grigoryan
